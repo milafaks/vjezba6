@@ -1,2 +1,2 @@
-ovo je za citanje i pisanje
+ovo je za citanje 
 
